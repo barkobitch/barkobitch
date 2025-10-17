@@ -9,7 +9,7 @@
 
 ***i only want to be friends with people 15+.***
 
-this was only made for ponytown - i primarily wear Gary Barkovitch (TLW), YOHIOloid (vocaloid), or Thatcher Davis (TMC).
+this was only made for ponytown - i primarily wear Gary Barkovitch (TLW), Antag/FakeProtag (EleHitch), or Thatcher Davis (TMC).
 
 I don't usually sit in the same areas all the time - I play when my friends play, so you'll probably see me move around a lot.
 
